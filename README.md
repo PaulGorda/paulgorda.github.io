@@ -1,1 +1,0 @@
-# paulgorda.github.io
